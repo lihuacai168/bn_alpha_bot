@@ -19,6 +19,9 @@ https://youtu.be/UCYxzzIg8Jw
 
 ### 2. 4倍积分大幅降低磨损
 精准筛选高低磨损值交易对，4倍积分加持，同样的成本效果翻倍。别人磨100刀，你只需要25刀。
+<img width="780" height="226" alt="47b6486773f562fbce6b14a75c6e87a0" src="https://github.com/user-attachments/assets/4562c70c-1937-4bf4-b1c5-87f3eb4f7576" />
+<img width="818" height="226" alt="8e007e6b10a572b986f23c5d9dc6906d" src="https://github.com/user-attachments/assets/d2d43849-ab39-434f-bf94-52fc247806ac" />
+
 
 ### 3. 告别半成品开源脚本
 专业图形化界面，不用改代码，点点鼠标就能用。你要的是赚钱工具，不是编程练习题。
