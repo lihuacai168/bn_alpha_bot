@@ -5,6 +5,9 @@ https://youtu.be/UCYxzzIg8Jw
 
 ![](https://img.huacai.one//huacai-blog/1762936848573-37057646-8ac2-4947-a55d-06cbb2020793.webp)
 
+文字教程
+https://blog.huacai.one/post/60
+密码bnokx666
 
 ## 为什么选择 AlphaBot？
 
