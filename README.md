@@ -3,7 +3,7 @@
 ## 📺 视频教程和软件下载
 https://youtu.be/UCYxzzIg8Jw
 
-![](https://img.huacai.one//huacai-blog/1762936848573-37057646-8ac2-4947-a55d-06cbb2020793.webp)
+![](https://img.huacai.one//huacai-blog/1765263916450-6a4a1e42-bbcf-4c20-b937-45f109b52fa8.webp)
 
 文字教程
 https://blog.huacai.one/post/60
