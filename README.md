@@ -4,6 +4,8 @@
 https://youtu.be/UCYxzzIg8Jw
 
 ![](https://img.huacai.one//huacai-blog/1765263916450-6a4a1e42-bbcf-4c20-b937-45f109b52fa8.webp)
+![](https://img.huacai.one//huacai-blog/1765675864908-b3dbdbf3-36ad-4f60-ba64-82ba3085a49c.webp)
+
 
 文字教程
 https://blog.huacai.one/post/60
