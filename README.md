@@ -4,7 +4,7 @@
 https://youtu.be/UCYxzzIg8Jw
 
 ![](https://img.huacai.one//huacai-blog/1765263916450-6a4a1e42-bbcf-4c20-b937-45f109b52fa8.webp)
-![](https://img.huacai.one//huacai-blog/1765675864908-b3dbdbf3-36ad-4f60-ba64-82ba3085a49c.webp)
+![](https://img.huacai.one//huacai-blog/1767885885309-083f70b1-4909-4d87-913a-f7a22ce17b68.webp)
 
 
 
@@ -18,8 +18,8 @@ https://blog.huacai.one/post/60
 **AlphaBot 不一样。** 我们是认真做产品的，每一个功能都经过反复打磨。一分钱一分货，专业的事交给专业的工具。
 
 ## 会封号吗？
-不会，目前已经超过30人持续运行超过3个月，证明使用AlphaBot不会被封号。
-但不能保证你一定不封号，风控是黑箱子，我无法给你保证。
+不会，目前已经超过30人持续运行超过3个月，证明使用AlphaBot不会被封号。  
+但不能保证你一定不封号，币安风控是黑箱子，我无法给你保证，任何给你保证的都是骗子
 
 ## 🎯 10 大核心优势
 
