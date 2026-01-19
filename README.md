@@ -3,9 +3,12 @@
 ## 📺 视频教程和软件下载
 https://youtu.be/UCYxzzIg8Jw
 
+**核心运行**
 ![](https://img.huacai.one//huacai-blog/1765263916450-6a4a1e42-bbcf-4c20-b937-45f109b52fa8.webp)
-![](https://img.huacai.one//huacai-blog/1767885885309-083f70b1-4909-4d87-913a-f7a22ce17b68.webp)
-
+**空投日历**
+![](https://img.huacai.one//huacai-blog/1768808947115-fb98ed87-5ef3-4a82-979c-46eb26350578.webp)
+**磨损统计**
+![](https://img.huacai.one//huacai-blog/1768808544255-dbe04c94-4951-4bc0-af1a-7065f041bae6.webp)
 
 
 文字教程
