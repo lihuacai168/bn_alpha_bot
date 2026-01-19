@@ -4,7 +4,8 @@
 https://youtu.be/UCYxzzIg8Jw
 
 **核心运行**
-![](https://img.huacai.one//huacai-blog/1765263916450-6a4a1e42-bbcf-4c20-b937-45f109b52fa8.webp)
+![](https://img.huacai.one//huacai-blog/1768809064014-62be7972-2c25-41f0-b10b-4a836321e667.webp)
+
 **空投日历**
 ![](https://img.huacai.one//huacai-blog/1768808947115-fb98ed87-5ef3-4a82-979c-46eb26350578.webp)
 **磨损统计**
