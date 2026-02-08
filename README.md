@@ -1,7 +1,11 @@
 # 币安Alpha全自动交易机器人
 
 ## 📺 视频教程和软件下载
+### 软件设置和使用教程
 https://youtu.be/UCYxzzIg8Jw
+
+### 新功能介绍
+- v.18 - v1.24功能介绍: https://youtu.be/1Sooo2bNNTE
 
 **核心运行**
 ![](https://img.huacai.one//huacai-blog/1768809064014-62be7972-2c25-41f0-b10b-4a836321e667.webp)
@@ -12,8 +16,10 @@ https://youtu.be/UCYxzzIg8Jw
 ![](https://img.huacai.one//huacai-blog/1768808544255-dbe04c94-4951-4bc0-af1a-7065f041bae6.webp)
 
 
-文字教程
-https://blog.huacai.one/post/60
+相关链接：  
+- ▸ 详细图文教程：https://blog.huacai.one/post/60
+- ▸ 软件下载（密码:92cu）：https://wwtx.lanzout.com/b0hdfo0di
+- ▸ 交流群：https://t.me/+euNzitfiSZA1N2Nl
 
 ## 为什么选择 AlphaBot？
 
